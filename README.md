@@ -5,6 +5,6 @@ Link to panda video : https://drive.google.com/file/d/1tvM1PEkpZ86Oy763YllNCsmSD
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------
 
-                        Recording Link : https://drive.google.com/file/d/1KU2-PnOAYjWRpbwZ4yRzVoTtr-gS48Sp/view?usp=sharing
+Recording Link : https://drive.google.com/file/d/1KU2-PnOAYjWRpbwZ4yRzVoTtr-gS48Sp/view?usp=sharing
                         
 
